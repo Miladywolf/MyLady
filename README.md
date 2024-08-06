@@ -12,4 +12,4 @@
 
 💖 *Amor pelas artes* 💖
 
-💸 Money Lover 💚
+💸 *Money Lover* 💚
